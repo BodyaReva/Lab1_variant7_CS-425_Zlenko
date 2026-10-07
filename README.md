@@ -1,1 +1,0 @@
-# Lab1_variant7_CS-425_Zlenko
